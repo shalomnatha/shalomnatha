@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @shalomnatha
+- 👀 I’m interested in music and tech
+- 🌱 I’m currently learning @ York International School Wattala
